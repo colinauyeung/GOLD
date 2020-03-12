@@ -5,7 +5,18 @@ Gold is resistant to most acids, though it does dissolve in aqua regia, a mixtur
 A relatively rare element,[5][6] gold is a precious metal that has been used for coinage, jewelry, and other arts throughout recorded history. In the past, a gold standard was often implemented as a monetary policy, but gold coins ceased to be minted as a circulating currency in the 1930s, and the world gold standard was abandoned for a fiat currency system after 1971.
 
 A total of 186,700 tonnes of gold exists above ground, as of 2015.[7] The world consumption of new gold produced is about 50% in jewelry, 40% in investments, and 10% in industry.[8] Gold's high malleability, ductility, resistance to corrosion and most other chemical reactions, and conductivity of electricity have led to its continued use in corrosion resistant electrical connectors in all types of computerized devices (its chief industrial use). Gold is also used in infrared shielding, colored-glass production, gold leafing, and tooth restoration. Certain gold salts are still used as anti-inflammatories in medicine. As of 2017, the world's largest gold producer by far was China with 440 tonnes per year.[9]
+HELLO WORLD
+
+v
+HELLO WORLD
 
 
 HELLO WORLD
 GGGGS
+HELLO WORLD
+HELLO WORLD
+
+HELLO WORLD
+
+HELLO WORLD
+HELLO WORLD
